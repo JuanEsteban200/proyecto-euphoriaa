@@ -1,6 +1,8 @@
 # proyecto-euphoriaa
 gestion de inventario
-Aprenid JHON GUTIERREZ
-Hola jhon
-Que hizo jhon
-
+Integrantes 
+Juan Carlos
+Que haria el juanca
+hola carlos att edward
+hola carlos att edwarddd
+hola jhon
